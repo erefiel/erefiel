@@ -8,6 +8,9 @@
 
 <p align="center">
 <b>HE/HIM</b>
+</p>
+
+<p align="center">
 Roleplayer & Artist
 </p>
 
@@ -26,5 +29,6 @@ Roleplayer & Artist
 
 [<img width="70" height="70" src="https://github.com/user-attachments/assets/895a6c75-2105-4c17-a211-530dedaea3e8">](https://github.com/raidrie)
 
+Да-да, Нам-Гю.
 
 <img width="200" height="30" src="https://64.media.tumblr.com/be342ffcacc55276fe53f9ade7fda67f/a96c2890f9f9b852-43/s250x400/1a503803e9ed128e29714769a1bb3b5e1a53b6c4.gifv">
