@@ -31,4 +31,6 @@ Roleplayer & Artist
 
 Что ты будешь делать, если завтра я рассеюсь?
 
+<img width="200" height="30" src="https://64.media.tumblr.com/be342ffcacc55276fe53f9ade7fda67f/a96c2890f9f9b852-43/s250x400/1a503803e9ed128e29714769a1bb3b5e1a53b6c4.gifv">
+
 ссжвпт <img width="25" height="25" src="https://64.media.tumblr.com/e06f52c41449b2531dafac4118098348/56f1ae481e750a1d-32/s75x75_c1/dd5c35a4cbc3958415f1b1f88a72ae1aa3f3bf9f.gifv">
